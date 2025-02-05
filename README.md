@@ -74,3 +74,14 @@ Sea Sunset Galaxy----------------------
 Shokomami------------------------------
 ![image](https://github.com/user-attachments/assets/6d302fb6-8dc8-4d87-b5c9-1a69518a7b8b)
 
+GalaxyCats-----------------------------
+![WhatsApp Image 2025-02-05 at 15 50 48_cddca13d](https://github.com/user-attachments/assets/10694857-b9a4-42f9-9f0c-79ea2c801901)
+
+VanGogh Cat----------------------------
+![WhatsApp Image 2025-02-05 at 15 50 47_b507d2ac](https://github.com/user-attachments/assets/b0c4497f-5ffa-4d34-9191-04d4d1b0534c)
+
+Notebook CATS--------------------------
+![WhatsApp Image 2025-02-05 at 15 50 47_e0b4a21f](https://github.com/user-attachments/assets/ebee55fe-6c81-4385-a591-d4509aea0757)
+
+Notebook Galaxy------------------------
+![WhatsApp Image 2025-02-05 at 15 50 47_01617288](https://github.com/user-attachments/assets/a81cac0c-0a58-4bdc-b73b-fbf65f05552a)
